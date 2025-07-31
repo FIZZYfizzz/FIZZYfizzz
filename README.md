@@ -55,9 +55,9 @@
 
 ## 📬 Let’s Connect
 
-[🔗 LinkedIn](https://www.linkedin.com/in/shaun-de-beer/)  
-📧 shaun.de.beer@mybelgiumcampus.ac.za  
-🌐 [Portfolio Website](https://fizzyfizzz.github.io/)
+🔗[LinkedIn](www.linkedin.com/in/shaundebeer)  
+📧 [Email](debeershaun18@gmail.com)   
+🌐 [Portfolio Website](https://fizzyfizzz.github.io/Shaun-de-Beer-Portfolio)
 
 ---
 
